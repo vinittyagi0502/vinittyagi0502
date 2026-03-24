@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 MCA Student | Digital Marketing Strategist | Web Designer<br><br>I am a results-driven MCA Student at HRIT University with a unique professional background that bridges the gap between creative marketing and technical development. With 6 years of experience in Digital Marketing and 2 years in Website Designing, I specialize in building high-performing, aesthetically pleasing digital experiences that drive business growth.<br><br>
+👋 Hi, I'm Vinit Tyagi<br><br>🚀 MCA Student | Digital Marketing Strategist | Web Designer<br><br>I am a results-driven MCA Student at HRIT University with a unique professional background that bridges the gap between creative marketing and technical development. With 6 years of experience in Digital Marketing and 2 years in Website Designing, I specialize in building high-performing, aesthetically pleasing digital experiences that drive business growth.<br><br>
 
 
 ## 🌐 Socials:
